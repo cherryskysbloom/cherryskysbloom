@@ -1,2 +1,2 @@
 ## susunerd Introduction
-Hello I am susunerd. I like Computers and Multimedia.\
+Hello I am susunerd. I like Computers and Multimedia.
